@@ -23,6 +23,8 @@
  
  ![png (15)](https://user-images.githubusercontent.com/85137954/127249447-5f6bd3f4-beea-4012-a8f8-0ec27a571c2a.png)
 
+![png (4)](https://user-images.githubusercontent.com/85137954/127267897-6b76bddb-52e0-43ca-805e-e7db9338b727.png)
+
  
  ## 3. EXPLICACION Y RESOLUCION DE EJERCICIOS O PROBLEMAS +
  
