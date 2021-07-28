@@ -14,10 +14,10 @@
  **Tema:** Capitulo 11 y Capitulo 12
  
  ## 1. OBJETIVO GENERAL
-  
+  - Comprenderlos temas correspondientes a los capitulos 11 y 12
  ## 1.2 OBJETIVOS ESPECÍFICOS
  
- 
+ -  Consultar los temas relacionados al informe correspondiente a Carga y descarga del capacitador del libro de Analisis de Circuitos
  
  ## 2. MARCO TEÓRICO
  
