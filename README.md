@@ -50,10 +50,35 @@
 
 ![WhatsApp Image 2021-07-27 at 19 49 09](https://user-images.githubusercontent.com/85137954/127246069-23a7f9e5-7b88-4a95-91d0-e2c78d9745a7.jpeg)
 
+ ![WhatsApp Image 2021-07-27 at 20 39 42](https://user-images.githubusercontent.com/85137954/127250402-94803215-1d15-4d5f-b023-1002eb284942.jpeg)
+
+ ![WhatsApp Image 2021-07-27 at 20 40 02](https://user-images.githubusercontent.com/85137954/127250406-b6930a25-9267-4cb6-974c-3907ed13e723.jpeg)
+
+ ![WhatsApp Image 2021-07-27 at 20 40 23](https://user-images.githubusercontent.com/85137954/127250411-2ffaaaba-ddf7-4243-a0aa-354b6fe3ec26.jpeg)
+
+ ![WhatsApp Image 2021-07-27 at 20 40 43](https://user-images.githubusercontent.com/85137954/127250420-6857f65d-04cd-41a3-ad0e-2354bd156e86.jpeg)
+
+ ![WhatsApp Image 2021-07-27 at 20 41 02](https://user-images.githubusercontent.com/85137954/127250426-021529e8-93be-4587-bb79-dc0b76310d2d.jpeg)
+
+![WhatsApp Image 2021-07-27 at 20 41 27](https://user-images.githubusercontent.com/85137954/127250463-e5cfe5a2-6674-46b3-9e40-803a97d8dd55.jpeg)
  
+![WhatsApp Image 2021-07-27 at 20 41 49](https://user-images.githubusercontent.com/85137954/127250469-18997713-b262-49f4-bd04-4b8c195e5884.jpeg)
  
+ ![WhatsApp Image 2021-07-27 at 20 42 22](https://user-images.githubusercontent.com/85137954/127250487-7c8ee5c2-0be1-4888-8265-f682305011b6.jpeg)
+
+![WhatsApp Image 2021-07-27 at 20 42 51](https://user-images.githubusercontent.com/85137954/127250492-c8901988-9eac-4894-8f15-79d0f5ffbd26.jpeg)
  
+![WhatsApp Image 2021-07-27 at 20 43 18](https://user-images.githubusercontent.com/85137954/127250496-bd4de064-b1b2-47c1-be31-035371c0fdee.jpeg)
  
+![WhatsApp Image 2021-07-27 at 20 43 41](https://user-images.githubusercontent.com/85137954/127250524-bf9f521a-03df-490a-8486-a2fc4d90fb97.jpeg)
+ 
+![WhatsApp Image 2021-07-27 at 20 43 57](https://user-images.githubusercontent.com/85137954/127250529-1abace5a-94ec-4856-984b-eb8eb3fb1878.jpeg)
+ 
+![WhatsApp Image 2021-07-27 at 20 44 16](https://user-images.githubusercontent.com/85137954/127250534-45109d71-f9c0-45bd-bec9-49997583ee83.jpeg)
+ 
+![WhatsApp Image 2021-07-27 at 20 44 38](https://user-images.githubusercontent.com/85137954/127250543-7a14bed9-4fae-4a32-b49c-dcb2659c7549.jpeg)
+ 
+![WhatsApp Image 2021-07-27 at 20 45 01](https://user-images.githubusercontent.com/85137954/127250548-692e8c68-98ab-410a-bab1-6e212216e61a.jpeg)
  
  
  
