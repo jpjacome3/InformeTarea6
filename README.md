@@ -92,3 +92,11 @@
 
  ## 6. BIBLIOGRAFIA
   
+- Adler, Jerry, “Another Bright Idea”, Newsweek, 15 de junio de 1992, p. 67.
+- Albean, D.L, “Single Post Swings Amplifier Gain Positive or Negative”, Electronic Design, enero de 
+1997, p. 153.
+
+- Barnes, R. y Wong, K.T., “Unbalanced and Harmonic Studies for the Channel Tunnel Railway 
+System”, IEE Proceedings, marzo de 1991, pp. 41-50.
+
+-  Dorf, Richard C., Technology, Society and Man, Boyd & Fraser, San Francisco, 1974
