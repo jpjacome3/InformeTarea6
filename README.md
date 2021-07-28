@@ -19,7 +19,11 @@
  
  ## 1.2 OBJETIVOS ESPECÍFICOS
  
- -  Consultar los temas relacionados al informe correspondiente a Carga y descarga del capacitador del libro de Analisis de Circuitos
+ -  Consultar los temas relacionados al informe correspondiente a Carga y descarga del capacitador del libro de Analisis de Circuitos.
+
+ -  Comprender el funcionamiento del capacitor al momento que se carga y de descarga.
+ 
+ -  Analizar y desarrollar circuitos magneticos mediante su tipo de material, en serie y paralelo.
  
  ## 2. MARCO TEÓRICO
  
@@ -147,7 +151,9 @@
  
  ## 5. CONCLUSIONES
  - Se concluyo de manera correcta como funciona la carga y descarga de un capacitor al encender el circuito. 
+ 
  - Mediante la lectura se comprendio el manejo y como coomo funcionan los circuitos magneticos
+ 
  - Se comprendio la manera en como se comporta un capacitor y la importancia del magnetismo en la electronica hoy en dia.
 
  ## 6. BIBLIOGRAFIA
