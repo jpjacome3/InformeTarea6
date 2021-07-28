@@ -81,13 +81,25 @@
 ![WhatsApp Image 2021-07-27 at 20 44 38](https://user-images.githubusercontent.com/85137954/127250543-7a14bed9-4fae-4a32-b49c-dcb2659c7549.jpeg)
  
 ![WhatsApp Image 2021-07-27 at 20 45 01](https://user-images.githubusercontent.com/85137954/127250548-692e8c68-98ab-410a-bab1-6e212216e61a.jpeg)
- 
+ ![image](https://user-images.githubusercontent.com/85137954/127264622-500c5d48-f04f-4bd9-b602-b7c4146e5c97.png)
+![image](https://user-images.githubusercontent.com/85137954/127264639-0d9a6223-309f-4ef3-9e9c-a0af367c3d74.png)
+![image](https://user-images.githubusercontent.com/85137954/127264757-647645b5-02c1-4c99-8c75-289643e0da04.png)
+
  
  
  
  
  **CAPITULO 12**
- 
+ ![image](https://user-images.githubusercontent.com/85137954/127264957-a29c073f-fa90-4151-aa38-a11f12313c52.png)
+![image](https://user-images.githubusercontent.com/85137954/127265078-e732ad23-46cb-457b-a7c7-e5031cf94fd1.png)
+![image](https://user-images.githubusercontent.com/85137954/127265140-4b3f5da0-e4e7-4f44-ac18-6d1958201019.png)
+![image](https://user-images.githubusercontent.com/85137954/127265181-30cdf88d-2592-4b9c-bc6d-66492de2c799.png)
+![image](https://user-images.githubusercontent.com/85137954/127265190-4779655c-6fd6-4d2b-8259-6560f2a70125.png)
+![image](https://user-images.githubusercontent.com/85137954/127265228-90fe4e80-2654-4e50-b356-7c841cfb60d7.png)
+![image](https://user-images.githubusercontent.com/85137954/127265325-b9b4fbc6-4a64-462e-877b-a750a3806357.png)
+![image](https://user-images.githubusercontent.com/85137954/127265342-bc1cc1bb-b3e7-4341-866c-6ab6e280589e.png)
+![image](https://user-images.githubusercontent.com/85137954/127265365-15066c60-3468-4dd8-9cc4-bce206367546.png)
+
  ## 4. VIDEO
  
  ## 5. CONCLUSIONES
