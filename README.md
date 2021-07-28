@@ -146,7 +146,9 @@
  https://youtu.be/6_Nw5ck0eVg
  
  ## 5. CONCLUSIONES
- - 
+ - Se concluyo de manera correcta como funciona la carga y descarga de un capacitor al encender el circuito. 
+ - Mediante la lectura se comprendio el manejo y como coomo funcionan los circuitos magneticos
+ - Se comprendio la manera en como se comporta un capacitor y la importancia del magnetismo en la electronica hoy en dia.
 
  ## 6. BIBLIOGRAFIA
   
