@@ -16,7 +16,7 @@
  ## 1. OBJETIVO GENERAL
  
   - Comprenderlos temas correspondientes a los capitulos 11 y 12, realizando los ejercicios de cada tema
-  - 
+ 
  ## 1.2 OBJETIVOS ESPECÍFICOS
  
  -  Consultar los temas relacionados al informe correspondiente a Carga y descarga del capacitador del libro de Analisis de Circuitos
